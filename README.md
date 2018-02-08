@@ -1,2 +1,2 @@
-# Buffalo_Bills_Super_Bowl_Strategy
+# Buffalo_Bills_Secret_Strategy
 Top Secret Information
